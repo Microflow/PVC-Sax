@@ -8,7 +8,9 @@ https://www.youtube.com/watch?v=KkGXLYSMkWM
 
 Phone is 0909570784 but the phone reception isn't good in my house, so you may need to call a few times.
 
+### Mini-Sax Good Tutorial (Starts 1:46)
 
+https://www.youtube.com/watch?v=KkGXLYSMkWM
 
 #### Metal Sax, 179 bucks
 
