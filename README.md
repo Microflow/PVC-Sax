@@ -4,6 +4,10 @@
 
 https://www.youtube.com/watch?v=KkGXLYSMkWM
 
+### Tyler Phone
+
+Phone is 0909570784 but the phone reception isn't good in my house, so you may need to call a few times.
+
 
 
 #### Metal Sax, 179 bucks
@@ -17,6 +21,8 @@ https://www.minisax.com/store/stainless-steel
 https://www.facebook.com/yamaha.musiclife.tw/
 
 No. 9, Songgao Rd, Xinyi District, Taipei City, 110
+
+### This looks good.
 
 Faith Bee Saxophone ProShop
 Monday – Friday 13:30 – 21:30
