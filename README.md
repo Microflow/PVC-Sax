@@ -14,6 +14,18 @@ https://www.minisax.com/store/stainless-steel
 
 [Music Stores in Taipei](https://www.google.com/search?q=saxophone+shops+in+taipei+yamaha&newwindow=1&sxsrf=ALiCzsYifJyRyQHANalF-AX1EiZZKYl5NA%3A1662126776344&source=hp&ei=uAoSY67DDPDh2roPjOeM8As&iflsig=AJiK0e8AAAAAYxIYyBmDXCmH-jj_YBEmfnW-ik0o1OxA&ved=0ahUKEwiu_8TgoPb5AhXwsFYBHYwzA74Q4dUDCAc&uact=5&oq=saxophone+shops+in+taipei+yamaha&gs_lcp=Cgdnd3Mtd2l6EAMyBQghEKABMgUIIRCgAToECCMQJzoLCC4QgAQQxwEQ0QM6BQgAEIAEOgUILhCABDoICC4QgAQQ1AI6CwguEIAEEMcBEK8BOggIABCABBDJAzoGCAAQHhAWOggIABAeEBYQCjoICAAQHhAPEBY6CAghEB4QFhAdOgoIIRAeEA8QFhAdOgcIIRCgARAKOgQIIRAVUABYsXFg-3RoAHAAeACAAXiIAbUSkgEEMzEuMZgBAKABAQ&sclient=gws-wiz)
 
+https://www.facebook.com/yamaha.musiclife.tw/
+
+No. 9, Songgao Rd, Xinyi District, Taipei City, 110
+
+Faith Bee Saxophone ProShop
+Monday – Friday 13:30 – 21:30
+Saturday 10:00 – 17:30 (Sundays off)
+Telephone : (02)2531-9776
+Address : ZhongShan North Road, Section 2, Lane 116, No. 39, 1st Floor
+E-Mail : Phoeby.tw@gmail.com
+Line : @phoebysax
+
 #### We're bulding a Recorder / Bassoon with a Sax Mouthpiece
 
 As this instrument has no keys, it's technically a recorder. A friend said it was a "soprano bassoon".
