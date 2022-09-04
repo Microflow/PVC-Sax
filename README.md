@@ -4,6 +4,10 @@
 
 https://www.youtube.com/watch?v=ZIAUWbT9Frg
 
+### Good 7 minute Tutorial - Has measurements - Doesn't play til 7:00 
+
+https://youtu.be/-CxdXKgDqZo?t=420
+
 ### Overtone Bass Flute
 
 https://www.youtube.com/watch?v=RK_CJeAavpA
