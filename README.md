@@ -4,6 +4,10 @@
 
 https://www.youtube.com/watch?v=ZIAUWbT9Frg
 
+### Blue Bear Good Tutorial Plays 13:40
+
+https://youtu.be/jPImKPAbOhI?t=820
+
 ### Good 7 minute Tutorial - Has measurements - Doesn't play til 7:00 
 
 https://youtu.be/-CxdXKgDqZo?t=420
