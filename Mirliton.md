@@ -15,7 +15,17 @@ https://www.youtube.com/watch?v=89NXvvbU-XM
 - Cover the End Near The Membrane with tape, or hands. 
 - Swap the Membrane for Newspaper or Wax paper. 
 - Use a falsetto voice, instead of humming.
-- Use your hands for harmom
+- Use your hands for harmomica sound
+
+###### History of Mirlitons, Physics, Africa War Horns, and More
+
+https://www.musicconstructed.com/tool/the-mighty-mirliton/
+
+### Music
+
+## Onion Flute and Dulcimer Drone
+
+https://www.youtube.com/watch?v=y9IpDENmOAo
 
 
 
