@@ -17,9 +17,15 @@ https://www.youtube.com/watch?v=89NXvvbU-XM
 - Use a falsetto voice, instead of humming.
 - Use your hands for harmomica sound
 
+### Science
+
 ###### History of Mirlitons, Physics, Africa War Horns, and More
 
 https://www.musicconstructed.com/tool/the-mighty-mirliton/
+
+######
+
+https://kazoos.com/pages/the-kazoo-its-physics-history-and-importance-for-modern-music
 
 ### Music
 
