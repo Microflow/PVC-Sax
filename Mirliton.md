@@ -63,3 +63,13 @@ https://www.youtube.com/watch?v=U3OxKdDxkpg
 
 ###### https://dashersw.github.io/pedalboard.js/
 
+#### Video Demo
+
+https://pedalboard.netlify.app/
+
+https://pedalboard.netlify.app/
+
+
+### Inspiring Acts
+
+One Man Band
