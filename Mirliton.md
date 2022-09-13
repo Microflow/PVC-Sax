@@ -43,3 +43,17 @@ https://www.youtube.com/watch?v=U3OxKdDxkpg
 
 
 
+## Mirlitone
+
+- Cardboard tube.
+- Passive resonator.
+- Natural Reverb.
+- Browser Based Guitar effects.
+- Lucy Drums.
+- BUY A MIC. 
+- Sing through a Harmonica.
+
+### Browser Based Guitar Effects
+
+[Browser Based Guitar Effects](https://www.google.com/search?q=browser+guitar+effects&newwindow=1&sxsrf=ALiCzsaCBqFONiPDvTm2lSA_e5N6Yuv55Q%3A1663032526538&ei=ztwfY9a8IJ2Nr7wP35i4uAU&ved=0ahUKEwjW2_n3zpD6AhWdxosBHV8MDlcQ4dUDCA4&uact=5&oq=browser+guitar+effects&gs_lcp=Cgdnd3Mtd2l6EAMyBAgjECc6BwgjELACECdKBQg8EgEySgQIQRgBSgQIRhgAUMAGWJ0gYI8haAJwAHgAgAFYiAHHAZIBATOYAQCgAQHAAQE&sclient=gws-wiz)
+
