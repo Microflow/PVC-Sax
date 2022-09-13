@@ -67,7 +67,10 @@ https://www.youtube.com/watch?v=U3OxKdDxkpg
 
 https://pedalboard.netlify.app/
 
-https://pedalboard.netlify.app/
+
+#### Pedalboard Blogpost
+
+https://www.trysmudford.com/blog/pedalboard/
 
 
 ### Inspiring Acts
