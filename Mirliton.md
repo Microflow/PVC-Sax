@@ -73,6 +73,15 @@ https://pedalboard.netlify.app/
 https://www.trysmudford.com/blog/pedalboard/
 
 
+### DIY Natural Reverb
+
+https://www.youtube.com/watch?v=oVgS4aaigXQ
+
+
+
 ### Inspiring Acts
 
 One Man Band
+
+https://www.youtube.com/watch?v=KkJTmwHdOjo
+
