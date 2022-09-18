@@ -4,8 +4,6 @@
 
 https://www.youtube.com/watch?v=V9-ltPsbw9g
 
-## Parts List
-
 ### Parts We Already Have
 
 ##### Bolts and Angle Irons
@@ -19,19 +17,28 @@ https://www.youtube.com/watch?v=V9-ltPsbw9g
 
 ##### Guitar Parts
 
-- Tuning pegs.
-- 2 nuts for the bridge.
-- Metal angle thing to raise the strings.
-- Metal angle thing for the bridge.
+Buy all bolts the same, if possible. Paint them black or gold. 
+
+Buy 10 bolts total.
+4 Angle Irons. 
+
+###### From a Hardware Store
+
+- 2 bolts for the bridge.
+- Angle Iron to raise the strings.
+- Angle Iron for the bridge.
 - 2 Bolts for the strap.
-- Pickup (Seymour Duncan)
+
+###### From a Guitar Shop
+
 - 3 strings (E A and D?)
-- Strap
-- 
+- Strap GOT
 
-Anything else I’ve missed?
+##### Guitar Parts Got
 
-Could make a piezo stompbox, too.
+- Pickup (Seymour Duncan) GOT
+- Tuning Pegs GOT
+ 
 
 ### Parts to Buy
 
@@ -57,4 +64,3 @@ Could make a piezo stompbox, too.
 
   
 
-I suggest coming during a weekday. There is a screw shop near me that will sell screws. I have a bunch of spare tuning pegs that you can use. As for the metal thing, look for some angle iron.
