@@ -3,6 +3,7 @@
 ###### TODO TUES: Make final shopping list. Get washbag ready: Limes, Grapefruit, Salt, Tea, iodine, Baking Soda. Do clothes in evening. 
 ###### Buy Cucumber/Ginger/Limes.
 ###### Wash Shoes.
+###### Write timetable. Get OWen lesson noted. 
 
 #### MAIN SHOVEL GUITAR VID
 
