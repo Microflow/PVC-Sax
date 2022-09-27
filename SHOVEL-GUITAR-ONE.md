@@ -1,5 +1,7 @@
 # Shovel Guitar
 
+###### TODO TUES: Make final shopping list. Get washbag ready: Limes, Grapefruit, Salt, Tea, iodine, Baking Soda. Do clothes in evening. 
+
 #### MAIN SHOVEL GUITAR VID
 
 https://www.youtube.com/watch?v=V9-ltPsbw9g
