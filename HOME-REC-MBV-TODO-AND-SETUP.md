@@ -22,6 +22,10 @@
 
 ## Pedals
 
+- Hold volume speaker in hand.
+- 
+RESEARCH: How to avoid microphnic feedback in home studio // how to browser app JS offline. 
+
 Write out recording logic for... 
  
 - Home headphones
