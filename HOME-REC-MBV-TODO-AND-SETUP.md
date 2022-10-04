@@ -16,13 +16,23 @@
 
 ### MUSIC TODO
 
-- Make Forumosa Post
+- Make Forumosa Post. Brainstorm upgrades. Fret markings. Different stickers different scales. 
 - Upload Photos
 - Get busker jar ready... (Glass?)
-- 
+
+## Pedals
+
+Write out recording logic for... 
+ 
+- Home headphones
+- Home Mic
+- Outdoor Speakers
+
+Shieled speakers from Feedback.
 
 ### Equipment TODO
 
+- Drum against cupboard
 
 ### Meet TODO
 
