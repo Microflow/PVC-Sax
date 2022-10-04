@@ -32,7 +32,11 @@ Write out recording logic for...
 - Home Mic
 - Outdoor Speakers
 
-Shieled speakers from Feedback.
+Sheiled speakers from Feedback.
+
+## How to Eliminate Microphonic Feedback
+
+https://www.youtube.com/results?search_query=how+to+avoid+microphonic+feedback+home+recording
 
 ### Equipment TODO
 
