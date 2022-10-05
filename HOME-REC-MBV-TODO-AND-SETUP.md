@@ -44,7 +44,12 @@ https://www.youtube.com/results?search_query=how+to+avoid+microphonic+feedback+h
 
 ### Meet TODO
 
+- Uke and Flute?
 
+### The Grace of King Anu
+
+- The soceress said, you're going to die King Anu
+- Because a human child's gonna rise up
 
 
 
